@@ -8,4 +8,6 @@
   
 ##
 
-![Documento sin título_page-0001 (1)](https://user-images.githubusercontent.com/98611507/179777659-9f263121-d9ba-486e-88c6-aa22a7216837.jpg)
+![Sedano Kristel CV_pages-to-jpg-0001](https://user-images.githubusercontent.com/98611507/180063076-6aa2f454-cfc0-43a3-a019-c407e7c93527.jpg)
+
+
